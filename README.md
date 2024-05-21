@@ -1,0 +1,5 @@
+- 👋 Olá, Eu sou @Wellingthon123
+- 👀 Eu tenho interesse em programação web.
+- 🌱 No meu tempo livre gosto de criar projetos pessoais e buscar novas feramentas de criação.
+- :briefcase: Você pode me encontrar via : Linkedlin:https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3BZsLIUsgOS5mpO4dpH24EGw%3D%3D
+- ou via e-mail: wellingthon.santos2004@gmail.com
